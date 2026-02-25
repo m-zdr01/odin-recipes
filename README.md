@@ -1,6 +1,8 @@
 Original recipes links:
 https://www.eatingbirdfood.com/apple-cinnamon-oatmeal/
 https://www.allrecipes.com/recipe/69471/baby-spinach-omelet/
+https://www.allrecipes.com/recipe/215189/fruit-and-yogurt-smoothie/
+
 
 Photos:
 Apple Cinnamon Photo by Pretty_flavours from Pexels: https://www.pexels.com/photo/a-bowl-of-oatmeal-with-apples-on-top-4382900/
